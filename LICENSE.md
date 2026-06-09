@@ -1,4 +1,4 @@
-#  
+#  Experience brainrot evolution like never before with brainrot evolution rare Script, the #1 Script. Includes no cooldown and esp for unbeatable
 
 
 
